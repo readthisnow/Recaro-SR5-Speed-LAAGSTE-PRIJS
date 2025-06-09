@@ -1,6 +1,6 @@
-# Recaro SR5 Speed Prijs
+# Recaro SR5 Speed (LAAGSTE PRIJS)
 
-De laatste bekende prijs voor de **Recaro SR5 Speed** sportstoel is ongeveer **€799 per stuk** 💶  
+De laagste bekende prijs in juni voor de **Recaro SR5 Speed** sportstoel is ongeveer **€799 per stuk** 💶  
 👉 **[Bekijk de laagste prijs op Amazon Nederland >](https://www.amazon.nl/s?k=recaro+sr5+speed&tag=laptoplifepro-21&language=nl_NL&ref=as_li_ss_tl)**
 
 ---
